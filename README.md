@@ -10,4 +10,5 @@ every video clip of elon musk, feel free to pull
 2022.05.17 [All-In Podcast: Twitter's bot problem, SpaceX's grand plan, Tesla stories, Giga Texas](https://www.youtube.com/watch?v=CnxzrX9tNoc)<br/>
 2022.08.07 [Everyday Astronaut Starbase Tour with Elon Musk part 2](https://www.youtube.com/watch?v=SA8ZBJWo73E&t=247s)<br/>
 2021.02.02 [Munro Live](https://www.youtube.com/watch?v=YAtLTLiqNwg)
+2019.11.12 [Lex Fridman](https://www.youtube.com/watch?v=smK9dgdTl40)
 
