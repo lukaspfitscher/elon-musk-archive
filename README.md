@@ -1,7 +1,7 @@
 # elon-musk-archive
 every video clip of Elon Musk, feel free to pull!
 
-2022.06.22 [Tesla Owners Silicon Valley Interview Part 3: bonus material)](https://www.youtube.com/watch?v=u5w_VkAx6tc&t=1351s)<br/>
+2022.06.22 [Tesla Owners Silicon Valley Interview Part 3: bonus material](https://www.youtube.com/watch?v=u5w_VkAx6tc&t=1351s)<br/>
 2022.06.21 [Bloomberg: Trump, Twitter, Job Cuts, Recession Risks](https://www.youtube.com/watch?v=TjBA6jy4ako)<br/>
 2022.06.14 [Tesla Owners Silicon Valley Interview Part 2: Life, The Universe and Everything: ](https://www.youtube.com/watch?v=iHmSrK238vI&t=610s)<br/>
 2022.06.16 [Project Veritas LEAKS #TwitterAllHands with Elon Musk](https://www.youtube.com/watch?v=UcxCt7KSTXs)<br/>
