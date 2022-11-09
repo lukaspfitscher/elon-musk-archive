@@ -13,11 +13,11 @@ every video clip of Elon Musk, feel free to pull/fork!<br/>
 2022.05.11 [Financial Times](https://www.youtube.com/watch?v=2cNLh1gfQIk&t=1845s)<br/>
 2022.04.14 [TED](https://www.youtube.com/watch?v=cdZZpaB2kDM)<br/>
 2022.08.07 [Everyday Astronaut Starbase Tour with Elon Musk part 2](https://www.youtube.com/watch?v=SA8ZBJWo73E&t=247s)<br/>
-2021.12.28 [Lex Fridman part 3](https://www.youtube.com/watch?v=DxREm3s1scA&t=2116s)<br/>
+2021.12.28 [Lex Fridman Interview Nr3](https://www.youtube.com/watch?v=DxREm3s1scA&t=2116s)<br/>
 2021.02.02 [Munro Live](https://www.youtube.com/watch?v=YAtLTLiqNwg)<br/>
 2020.05.07 [Joe Rogan Interview Nr2](https://www.youtube.com/watch?v=RcYjXbSJBN8)<br/>
-2019.11.12 [Lex Fridman part 2](https://www.youtube.com/watch?v=smK9dgdTl40)<br/>
-2019.04.12 [Lex Fridman part 1](https://www.youtube.com/watch?v=dEv99vxKjVI)<br/>
+2019.11.12 [Lex Fridman Interview Nr2](https://www.youtube.com/watch?v=smK9dgdTl40)<br/>
+2019.04.12 [Lex Fridman Interview Nr1](https://www.youtube.com/watch?v=dEv99vxKjVI)<br/>
 2018.09.07 [Joe Rogan Interview Nr1](https://www.youtube.com/watch?v=ycPr5-27vSI&t=1810s)<br/>
 
 
