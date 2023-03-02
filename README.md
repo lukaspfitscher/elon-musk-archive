@@ -22,6 +22,7 @@ every video clip of Elon Musk, feel free to pull/fork!<br/><br/>
 2019.11.12 [Lex Fridman Interview Nr2](https://www.youtube.com/watch?v=smK9dgdTl40)<br/>
 2019.04.12 [Lex Fridman Interview Nr1](https://www.youtube.com/watch?v=dEv99vxKjVI)<br/>
 2018.09.07 [Joe Rogan Interview Nr1](https://www.youtube.com/watch?v=ycPr5-27vSI&t=1810s)<br/>
+2017.01.10 [Sam Altman Interview](https://www.youtube.com/watch?v=8JoTw_JuE78)<br/>
 
 
 
